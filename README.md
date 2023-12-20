@@ -1,1 +1,1 @@
-Site da loja de games
+Loja de games
